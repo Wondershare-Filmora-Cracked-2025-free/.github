@@ -6,7 +6,7 @@
 
 Wondershare Filmora is a popular and user-friendly video editing software designed for beginners and intermediate users. It provides a balance between ease of use and functionality, making it suitable for hobbyists, content creators, and professionals looking for a straightforward editing tool. Here are some key features and aspects of Wondershare Filmora:
 
-Wondershare Filmora is a professional video editor to express your creativity and amazes you with beautiful results.
+[Wondershare Filmora](https://filmora.wondershare.com/) is a professional video editor to express your creativity and amazes you with beautiful results.
 
 wondershare filmora crack reddit
 
